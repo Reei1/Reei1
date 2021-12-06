@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Reei1
+- 👀 I’m interested editing, video games
+- 🌱 I’m currently learning editing
+- 📫 How to reach me: Steam: https://steamcommunity.com/id/Reei_12/
